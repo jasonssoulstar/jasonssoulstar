@@ -8,7 +8,8 @@ rivals usr is ' sweetmrswagner ' !! ♥️
 
 ok sorry for changing this again, dw everything else on my phone is bucky 🥹
 
-![1000032135](https://github.com/user-attachments/assets/3d64feb9-7d67-4d67-b5e1-38268a73f5b6)
+![1000032390](https://github.com/user-attachments/assets/2e0a8e79-513c-45f5-bf3a-9ec7b82a7c39)
+
 
 
 
